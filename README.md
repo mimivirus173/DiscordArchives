@@ -1,2 +1,2 @@
 # DiscordArchives
- archives of discord servers i have been in
+ archive of some discord servers i have been in
